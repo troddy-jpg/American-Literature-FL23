@@ -3,6 +3,8 @@
 
 Scrutinize??? Rebuke / censure / finger wagging
 
+In comparing the criticism of the book to that of an authors child, "The Author to Her Book" wags a finger at the critics in question and implores readers to contemplate the cost of
+
 After introducing her work as an 'ill-form'd offspring' of her 'mortal brain'(Bradstreet, 1), Bradstreet emphasizes the harsh light under which her work was judged. With this emphasis, Bradstreet readies readers to be critical of the damage done by the expectation of perfection.
 
 Bradstreet is made to be an audience to the many flaws of her text as a result of this criticism.
