@@ -17,9 +17,9 @@ Topic sentences?
 
 Bradstreet acknowledges the cruelty,
 
-bradstreet sees her work like her critics,
+Bradstreet sees her work like her critics,
 
-bradstreet blames herself for the mistakes,
+Bradstreet blames herself for the mistakes,
 
 Bradstreet internalizes the criticism to the point of blaming her own lack of life experience.
 
