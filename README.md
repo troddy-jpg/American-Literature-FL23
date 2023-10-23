@@ -1,35 +1,4 @@
-ENGL 1313: The Beginnings of American Literature  5 
-
-**ENGL 1313:** 
-
-**The Beginnings of American Literature** 
-
-**REVISED** 
-
-**Fall 2023  Dr. Claudia Stokes (she/her) MWF 12:30-1:20  DH 328, 999-7833** 
-
-**DH 308  [cstokes@trinity.edu** ](mailto:cstokes@trinity.edu)**
-
-Office Hours: 
-
-Tuesdays 2-3 and Thursdays 10-12 
-
-and by appointment  
-
-# **Course Description** 
-This course examines some of the major concerns and interests of American literature from the colonial era through the nineteenth century. We will study the numerous aesthetic movements that informed literature in this period, such as the Puritan plain style, American Romanticism, and literary realism. We will also learn about the various literary genres and forms that became popular amid these aesthetic movements, among them the sermon, the autobiography, the essay, and the novel. The class will also cover such influential movements as transcendentalism, sentimentalism, and naturalism.  
-
-# **Course Books** 
-- *Broadview Anthology of American Literature*  
-- Stephen Crane, *The Red Badge of Courage* (Broadview) 
-
 # **Schedule**
-
-10/20  Frances Harper, “The Slave Mother,” “Bible Defense of Slavery,” “The Fugitive’s  
-
-Wife” (UD) 
-
-Week 9 
 
 10/23-27  Walt Whitman, *Song of Myself* (1881 edition) (UD) 10/27  Humanities Day 
 
@@ -70,4 +39,29 @@ Trigger warning: this text contains scenes of violence
 Week 15* 
 
 12/4  Review and course evaluation 
-# **THE FINAL EXAM WILL BE HELD ON THURSDAY, DECEMBER 14 FROM 12:00- 3:00pm.** The exam will be made available on Canvas, and students will have precisely three hours to complete the exam on their own. Students registered with SAS may receive additional time. Students will be held to the highest standards of the Honor Code and may not consult any sources—such as notes, texts, web searches—during the exam period. At the completion of the exam period, students must upload the exam to Canvas.**  
+
+# ENGL 1313: The Beginnings of American Literature  5 
+
+**ENGL 1313:** 
+
+**The Beginnings of American Literature** 
+
+**REVISED** 
+
+**Fall 2023  Dr. Claudia Stokes (she/her) MWF 12:30-1:20  DH 328, 999-7833** 
+
+**DH 308  [cstokes@trinity.edu** ](mailto:cstokes@trinity.edu)**
+
+Office Hours: 
+
+Tuesdays 2-3 and Thursdays 10-12 
+
+and by appointment  
+
+# **Course Description** 
+This course examines some of the major concerns and interests of American literature from the colonial era through the nineteenth century. We will study the numerous aesthetic movements that informed literature in this period, such as the Puritan plain style, American Romanticism, and literary realism. We will also learn about the various literary genres and forms that became popular amid these aesthetic movements, among them the sermon, the autobiography, the essay, and the novel. The class will also cover such influential movements as transcendentalism, sentimentalism, and naturalism.  
+
+# **Course Books** 
+- *Broadview Anthology of American Literature*  
+- Stephen Crane, *The Red Badge of Courage* (Broadview) 
+
