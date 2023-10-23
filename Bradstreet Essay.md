@@ -1,9 +1,5 @@
 
-"The Author to Her Book" by Anne Bradstreet Is a poem where Anne Bradstreet reflects on the editing process for the second edition of a major poetry collection. The poem features the text metaphorically in the form of a child of Anne Bradstreet. By illustrating a maternal relationship between author and text, Bradstreet aims to scrutinize her critics and implore readers to evaluate the cost of criticizing art.
-
-Scrutinize??? Rebuke / censure / finger wagging
-
-In comparing the criticism of the book to that of an authors child, "The Author to Her Book" wags a finger at the critics in question and implores readers to contemplate the cost of
+In the poem "The Author to Her Book" by Anne Bradstreet , an author reflects on the editing process for the second edition of a major poetry collection. The poem features the text metaphorically in the form of a child of the author. In comparing the criticism of the book to that of an authors child, "The Author to Her Book" wags a finger at the critics in question and implores readers to evaluate the cost of their expectations.
 
 After introducing her work as an 'ill-form'd offspring' of her 'mortal brain'(Bradstreet, 1), Bradstreet emphasizes the harsh light under which her work was judged. With this emphasis, Bradstreet readies readers to be critical of the damage done by the expectation of perfection.
 
